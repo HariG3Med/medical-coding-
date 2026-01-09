@@ -1,1 +1,5 @@
 # HARI-KRISHNAN-K-g3-med-coding[med coding project HARI G3 (1).pdf](https://github.com/user-attachments/files/24533861/med.coding.project.HARI.G3.1.pdf)
+![elder help](https://github.com/user-attachments/assets/e77fca49-b1b3-41f3-8bab-0c936610c70e)
+![blood donation](https://github.com/user-attachments/assets/5ffa46f9-dc8c-4cdb-8b98-4ce250995bc0)
+![tree plantation](https://github.com/user-attachments/assets/fa0e6621-bbcc-4441-9f6c-5bdfdca1ef0b)
+[soap note assignment Hari krishnan k (1).pdf](https://github.com/user-attachments/files/24533912/soap.note.assignment.Hari.krishnan.k.1.pdf)
